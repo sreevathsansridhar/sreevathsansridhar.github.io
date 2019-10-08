@@ -1,2 +1,3 @@
-# sreevathsansridhar.github.io
-Personal website
+# Sreevathsan Sridhar - Personal Website
+
+
